@@ -1,6 +1,6 @@
-Download/Buy: [https://eloistree.itch.io/2019-10-04-kissyourpuppets](https://eloistree.itch.io/2019-10-04-kissyourpuppets)  
-Download all my games as a bundle (5€): [https://eloi.page.link/bundle](https://eloi.page.link/bundle)  
-Video: https://youtu.be/ThUk8caWoXw  
+Download/Buy: [https://eloistree.itch.io/2019-10-04-kissyourpuppets](https://eloistree.itch.io/2019-10-04-kissyourpuppets)    
+Download all my games as a bundle (5€): [https://eloi.page.link/bundle](https://eloi.page.link/bundle)    
+Video: https://youtu.be/ThUk8caWoXw   
 
 ----------------------------
 
