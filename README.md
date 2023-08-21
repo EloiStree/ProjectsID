@@ -1,3 +1,13 @@
+![WIP](https://github.com/EloiStree/EloiStree/blob/master/Images/WIP.png)  
+I have 10 years of R&D on my own project and throw the workshop I teached.  
+But I never took the time to publish them all.  
+You can find  the tip of the iceberg as video on my channels about what I did.    
+Ping me  on discord if you need something that is not here.      
+https://www.youtube.com/@eloistreeraw  
+
+---------------------
+
+
 # Projects ID
 
 All my project are identify by the start day of the project Creation YYYY_MM_DD_ProjectName.  
