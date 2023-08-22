@@ -6,7 +6,13 @@ Ping me  on discord if you need something that is not here.
 https://www.youtube.com/@eloistreeraw  
 
 ---------------------
+Note: there are no better way to learn what I do that checking aroundt the channel [EloiStree Raw on Youtube](https://www.youtube.com/@eloistreeraw/videos).  
 
+[![image](https://github.com/EloiStree/ProjectsID/assets/20149493/ff9deee4-9655-40cc-8b09-3601af78c5c7)](https://www.youtube.com/@eloistreeraw/videos)  
+[![image](https://github.com/EloiStree/ProjectsID/assets/20149493/093e9f42-bd21-427b-858b-6e4cbe916d0b)](https://www.youtube.com/@eloistreeraw/videos)  
+https://www.youtube.com/@eloistreeraw/videos  
+
+---------------------
 
 # Projects ID
 
