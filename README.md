@@ -1,4 +1,4 @@
-![WIP]([https://github.com/EloiStree/EloiStree/blob/master/Images/WIP.png](https://github.com/EloiStree/EloiStree/blob/f52e4d483e2a0b882541890354eafc7901aab795/Images/WIP.png))  
+![WIP]([https://github.com/EloiStree/EloiStree/blob/f52e4d483e2a0b882541890354eafc7901aab795/Images/WIP.png?raw=true](https://github.com/EloiStree/EloiStree/blob/f52e4d483e2a0b882541890354eafc7901aab795/Images/WIP.png?raw=true))  
 I have 10 years of R&D on my own project and throw the workshop I teached.  
 But I never took the time to publish them all.  
 You can find  the tip of the iceberg as video on my channels about what I did.    
